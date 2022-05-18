@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning frontend development, but I'm beginner, you know... Re-e-ea-a-ally beginner. But I love studying so it will change ❤️
 - My english is ridiculous, because I can read english texts pretty good, but can be bad at grammar. I can watch series almost w/o subtitles (even the english ones), but my spelling... Typical problem for language learners, huh?
 - 📫 How to reach me:
-E-mail: digirlie081516@gmail.com 
+E-mail: digirlie@protonmail.com
 Telegram: @dinzinz
 Twitter: @dinzinz
 
