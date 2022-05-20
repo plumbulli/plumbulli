@@ -2,7 +2,6 @@
 - 🗣️ INTP-A Type, 5w4, so/sx 🧐 Quite interested in psychology and digital art 
 - ⚠️ I have Asperger's Syndrome. I think I should let you know it. So it'll be desirable if my future place of work will be calm and with written instructions, etc.
 - 🙊 English level ~ B1-B2, can watch series (but prefer cartoons lol), even w/o subtitles, read regular articles but still can be bad with grammar and speaking sometimes, writing can be okay but speaking uhh...
-- 🌱 Currently learning frontend development ❤️
 - 📫 How to reach me:
 E-mail: digirlie081516@gmail.com
 Telegram: @dinzinz
