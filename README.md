@@ -2,5 +2,4 @@
 - 🗣️ Quora: https://www.quora.com/profile/Dinzinz
 - Sololearn: https://www.sololearn.com/profile/24699044
 - ⚠️ I have Asperger's Syndrome and it's kinda positive for programming industry so please read instruction if you want to know what I can't do and what I definitely can 🤔
-- Ealier I wanted to be a freelance digital artits, but sanctions ruined my wishes. Anyway you can look at my carrd to find out I have a taste already so I need only to do something like it w/o any services: https://digirlie.carrd.co/ 
 - 📫 MY CV (thanks to RSSchool): https://github.com/dinzinz/rsschool-cv/blob/gh-pages/cv.md
