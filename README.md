@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @dinzinz
 - 🗣️ Quora: https://www.quora.com/profile/Dinzinz
 - Sololearn: https://www.sololearn.com/profile/24699044
-- ⚠️ I have Asperger's Syndrome and it's kinda positive for programming industry so please read instruction if you want to know what I can't do and what I definitely can 🤔
 - 📫 MY CV (thanks to RSSchool): https://github.com/dinzinz/rsschool-cv/blob/gh-pages/cv.md
